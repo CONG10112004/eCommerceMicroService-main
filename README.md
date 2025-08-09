@@ -98,7 +98,7 @@ Bao gồm:
 
 ## Liên hệ
 
-Nếu có thắc mắc hoặc góp ý, vui lòng liên hệ qua email: **[vuquan150904@gmail.com](mailto:vuquan150904@gmail.com)**
+Nếu có thắc mắc hoặc góp ý, vui lòng liên hệ qua email: **[nthanhcong113@gmail.com]**
 
 ---
 
